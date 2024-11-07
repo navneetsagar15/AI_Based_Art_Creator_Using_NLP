@@ -42,5 +42,5 @@ Procedure
 
 
 Note-	If you have any issue in running then contact us on our Email.
-email-	navneet.it.19042@recb.ac.in
+email-	nabbusagar97@gmail.com
 	
